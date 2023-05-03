@@ -1,1 +1,0 @@
-# alkankurt.github.io
